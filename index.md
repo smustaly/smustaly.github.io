@@ -45,8 +45,7 @@ Antioxidants & Redox Signaling. 2018 29(12). doi: [10.1089/ars.2017.7266](https:
 
 ---
 
-## Teaching Experience
-Leadership/Teaching Roles:
+## Leadership/Teaching Experience
 
 INSPIRE program coordinator, mentor, and lecturer
 
